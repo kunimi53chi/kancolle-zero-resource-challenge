@@ -1,0 +1,1 @@
+kancolle-zero-resource-challenge
